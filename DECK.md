@@ -53,8 +53,6 @@ As more players join, **winners drop dramatically** - ROI skyrockets.
 
 ## The Vision
 
-I'm **Anselme Gouanou** - solo founder.
-
 My goal: revive **narrative-based games** (like D&D) and merge them with crypto. Players have fun answering impossible dilemmas. Winners take life-changing payouts.
 
 ### Endgame: Full Automation
@@ -96,4 +94,5 @@ I'm forming the **3 Governance Slots** - strategic partners who split the 7% tre
 
 Reply if you're interested in a seat.  
 I'll walk you through every detail.
+
 
