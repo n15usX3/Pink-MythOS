@@ -97,4 +97,3 @@ I'm forming the **3 Governance Slots** - strategic partners who split the 7% tre
 Reply if you're interested in a seat.  
 I'll walk you through every detail.
 
-- **Anselme X. A. Gouanou**
