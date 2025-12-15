@@ -74,8 +74,7 @@ I'm forming the **3 Governance Slots** - strategic partners who split the 7% tre
 2. Want board-level alignment, not a quick flip
 3. Can amplify the launch (KOLs, communities, capital, liquidity)
 
-**What you get:**  
-- OTC allocation at ground-floor terms  
+**What you get:** 
 - Direct governance influence  
 - Treasury-side alignment (you win when the house wins)
 
@@ -94,5 +93,6 @@ I'm forming the **3 Governance Slots** - strategic partners who split the 7% tre
 
 Reply if you're interested in a seat.  
 I'll walk you through every detail.
+
 
 
